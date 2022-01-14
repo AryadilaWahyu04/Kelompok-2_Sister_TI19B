@@ -2,9 +2,10 @@
 
 Nama Anggota:
 1. Agung Prakoso (19SA3052)
-2. Deasy Komarasary (19SA3080)
-3. Diaz Maulana Rizki (19SA3010)
-4. Eka Setiawan (19SA3042)
-5. Fendi Elyon R. (19SA364?)
-6. M. Ma'rifatul Izam (19SA3046) 
-7. Wahyu Aryadila (19SA3059)
+2. Anugrah Reza Pratama (19SA3075)
+3. Deasy Komarasary (19SA3080)
+4. Diaz Maulana Rizki (19SA3010)
+5. Eka Setiawan (19SA3042)
+6. Fendi Elyon R. (19SA364?)
+7. M. Ma'rifatul Izam (19SA3046) 
+8. Wahyu Aryadila (19SA3059)
